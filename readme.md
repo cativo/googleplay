@@ -1,3 +1,6 @@
+# PLEASE SUPPORT THE OWNER OF THIS REPO AS HE NEEDS YOUR SUPPORT AT : https://www.paypal.com/donate/?hosted_button_id=UEJBQQTU3VYDY
+
+
 # GooglePlay
 
 > Fear plays an interesting role in our lives. How dare we let it motivate us?
